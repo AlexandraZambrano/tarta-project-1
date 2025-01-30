@@ -32,7 +32,7 @@ Nivel Medio
 
 - Documentar el proceso con fotos o videos.
 
-- Nivel Avanzado
+Nivel Avanzado
 
 - Perfeccionar técnicas de repostería como el batido adecuado de las claras de huevo o la correcta integración de los ingredientes.
 
